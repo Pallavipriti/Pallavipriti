@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **Html,CSS,JS**
 
-- 📫 How to reach me **pallavisinghbth162@gmail.com**
+- 📫 How to reach me **pallavipriti016@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
